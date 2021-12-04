@@ -15,7 +15,7 @@ https://nextcloud.yuri.website
 
 音声大群（兼通知群/听后感提交群）：717438974
 
-有疑问看这里↓
+有疑问看这里→
 ①进音声大群直接询问群主管理群友（首推）
 ②私聊B站【YURI音声同好会】（推荐）
 ③发邮件至yurifans.ntxl@gmail.com
